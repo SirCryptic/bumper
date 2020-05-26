@@ -1,2 +1,2 @@
 # bumper
-disbumper's rather big dont you thing?
+disbumper's rather big dont you think?
